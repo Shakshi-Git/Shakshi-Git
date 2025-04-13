@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Shakshi Bansal
-- 
+👋 Hi, I’m Shakshi Bansal
+ 
 🚀 Education
 
 🎓 Master of Business Administration : HR & Finance || SKIT, Jaipur
